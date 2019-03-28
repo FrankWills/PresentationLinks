@@ -7,3 +7,5 @@
 [Bitcoin Ethics](https://docs.google.com/presentation/d/11n5mQS3-Fp6-T9Tou1WtYQkD0ci5d1re6c6TfemTlzs/edit?usp=sharing)
 
 [IEEE March 26th](https://docs.google.com/presentation/d/1GxORoK2cnUsdwOuUvZVrrcp-7Z25Urv5gLxq6mx6GqU/edit?usp=sharing)
+
+[IEEE Solder Workshop](https://docs.google.com/presentation/d/153EvPC0d1xvpmaHk2XZIqHwIFN-lcOKupQLICRTlNaM/edit?usp=sharing)
