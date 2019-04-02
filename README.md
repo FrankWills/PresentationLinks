@@ -9,3 +9,5 @@
 [IEEE March 26th](https://docs.google.com/presentation/d/1GxORoK2cnUsdwOuUvZVrrcp-7Z25Urv5gLxq6mx6GqU/edit?usp=sharing)
 
 [IEEE Solder Workshop](https://docs.google.com/presentation/d/153EvPC0d1xvpmaHk2XZIqHwIFN-lcOKupQLICRTlNaM/edit?usp=sharing)
+
+[IEEE April 2nd](https://docs.google.com/presentation/d/1le2u_5QRxfSvIvIPNcb6IeNriU4R7Um734iSbSHbqoo/edit?usp=sharing)
