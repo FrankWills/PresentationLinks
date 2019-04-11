@@ -11,3 +11,5 @@
 [IEEE Solder Workshop](https://docs.google.com/presentation/d/153EvPC0d1xvpmaHk2XZIqHwIFN-lcOKupQLICRTlNaM/edit?usp=sharing)
 
 [IEEE April 2nd](https://docs.google.com/presentation/d/1le2u_5QRxfSvIvIPNcb6IeNriU4R7Um734iSbSHbqoo/edit?usp=sharing)
+
+[IEEE Synth Workshop](https://docs.google.com/presentation/d/1uVj8X3MGhIGXS8nSdDB4vBhVJdbfHUFn6Z_zjNiiXuA/edit?usp=sharing)
