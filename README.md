@@ -13,3 +13,5 @@
 [IEEE April 2nd](https://docs.google.com/presentation/d/1le2u_5QRxfSvIvIPNcb6IeNriU4R7Um734iSbSHbqoo/edit?usp=sharing)
 
 [IEEE Synth Workshop](https://docs.google.com/presentation/d/1uVj8X3MGhIGXS8nSdDB4vBhVJdbfHUFn6Z_zjNiiXuA/edit?usp=sharing)
+
+[IEEE April 16th](https://docs.google.com/presentation/d/1iW6cjmEjvUS8_JkdSqwhhlYWqYqbjpIyx_wrqRqEOHM/edit?usp=sharing)
