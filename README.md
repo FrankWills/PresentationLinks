@@ -19,3 +19,5 @@
 [Key Words Presentation](https://docs.google.com/presentation/d/1JfgCmAd-nJRi7a7mqlc2yqdyJpn1yZMhhW2-XFvPO_M/edit?usp=sharing)
 
 [IEEE April 23rd](https://docs.google.com/presentation/d/1XJ-FcGBN2Vyy4OPVxjL-hsVfeN57cIq-Xz9Kq1tJ4KQ/edit?usp=sharing)
+
+[IEEE 2019 Kickoff](https://docs.google.com/presentation/d/130EwXGUYVoPW9URjs7XpxooMvVRY8wZ2JmvwWD2Z0cU/edit?usp=sharing)
