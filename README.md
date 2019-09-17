@@ -21,3 +21,5 @@
 [IEEE April 23rd](https://docs.google.com/presentation/d/1XJ-FcGBN2Vyy4OPVxjL-hsVfeN57cIq-Xz9Kq1tJ4KQ/edit?usp=sharing)
 
 [IEEE 2019 Kickoff](https://docs.google.com/presentation/d/130EwXGUYVoPW9URjs7XpxooMvVRY8wZ2JmvwWD2Z0cU/edit?usp=sharing)
+
+[IEEE Sept 17th](https://docs.google.com/presentation/d/1vwUtq_p5kLKr2pH14MJx6F47MLmsLEpBtJQithr7hdc/edit?usp=sharing)
